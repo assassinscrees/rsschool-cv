@@ -1,1 +1,0 @@
-https://assassinscrees.github.io/rsschool-cv/cv
